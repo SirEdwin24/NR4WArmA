@@ -1,3 +1,4 @@
 # NR4WArmA
 ArmA Repository
-My name is a candy dipshit
+My name is Candy dipshit
+My name is Candy, dipshit
